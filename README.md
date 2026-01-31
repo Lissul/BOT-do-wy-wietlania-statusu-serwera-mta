@@ -1,0 +1,1 @@
+# BOT-do-wy-wietlania-statusu-serwera-mta
